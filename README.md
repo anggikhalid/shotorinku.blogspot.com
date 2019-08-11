@@ -1,0 +1,1 @@
+# shotorinku.blogspot.com
